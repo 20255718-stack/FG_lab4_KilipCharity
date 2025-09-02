@@ -30,6 +30,7 @@
     They show how closely fans follow and defend their idols.
             
     Sometimes, these incidents affect the public images of the celebrities involved, leading to official statements or interventions by fan club managers.</p1> 
+    
 </html>        
 
 
